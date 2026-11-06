@@ -1,1 +1,0 @@
-# Laboratorio-de-Teorema-del-Residuo-Chino
